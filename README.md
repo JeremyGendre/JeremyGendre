@@ -7,5 +7,5 @@
 - 💬 Ask me about everything
 - 📫 How to reach me: gendrejeremy@yahoo.fr
 - 😄 Pronouns: Him
-- ⚡ Fun fact: no fun fact
+- ⚡ Fun fact: I dont like beers / coffee :O
 
