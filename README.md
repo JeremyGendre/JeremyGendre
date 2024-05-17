@@ -7,4 +7,4 @@
 - 📫 How to reach me: gendrejeremy@yahoo.fr
 - ⚡ Fun fact: I dont like beers / coffee :O
 
-more informations =>  [gendrejeremy.fr](http://gendrejeremy.fr/)
+more informations =>  [see my portfolio]([http://gendrejeremy.fr/](https://jeremygendre.github.io/personal-website-remastered/))
